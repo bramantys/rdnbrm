@@ -1,2 +1,7 @@
 # rdnbrm
 created on 21-09-24 as week 1.4 PA in MUDE
+kcxnvkxnvkcnvcxkvndfkvnxco lnxzlcnsdocdocn cxojvnzox noadcnzoxn vsodcozxncsodincasoinc
+acjnasdjcnzjxbKDSBAKSC ISDACSCASV
+vNFVINSZJXCBausDBAUhfciAXZN KFNIVcdniUANEDCUIANOVCS
+129842938r5uwu9eqhDCIsbdVUBewiufbdiuwqbDIUFIUEQWbfowrf
+2492i34r92ufihsdjbcwjeqbfudwebfu3bwjcbwure
